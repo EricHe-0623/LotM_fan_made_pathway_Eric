@@ -1,0 +1,2 @@
+# LotM_fan_made_pathway_Eric
+个人自用的诡秘之主二创途径仓库
